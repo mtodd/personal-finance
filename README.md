@@ -15,6 +15,7 @@ jollyjerry@gmail.com.
 * [Check credit score](https://www.annualcreditreport.com) once a year
 * Refinance for a lower interest rate on mortgages or large loans
 * Consider [401k](https://www.irs.gov/Retirement-Plans/Plan-Participant,-Employee/Retirement-Topics-Loans) loans. Up to $50k, prime rate, and interest and principal are both paid back into the account
+* Use a credit card with rewards like the [Chase Reserve ](https://creditcards.chase.com/a1/sapphire/reserve) with travel credits (up to $300/year) and 3x points on travel and dining and 50k bonus points.
 
 ## Liquidity
 
